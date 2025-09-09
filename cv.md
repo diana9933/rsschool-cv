@@ -17,8 +17,8 @@ In the learning process
 * Accountant
 * Own micro-company: International freight forwarding (Since 2019)
 ### **Education**
-* *Academy of Economic Studies of Moldova:* Marketing and Logistics
-* *Financial and Banking College of Chisinau (CFBC):* Finance and Insurance
+* Academy of Economic Studies of Moldova: *Marketing and Logistics*
+* Financial and Banking College of Chisinau (CFBC): *Finance and Insurance*
 ### **English Language**
 * Russian: native
 * English: A2 (Elementary)
